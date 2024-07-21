@@ -1,3 +1,3 @@
-## Astar ft Ibrahim tech
+## GURU
 
 ## Qr + pairing code
